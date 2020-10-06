@@ -1,1 +1,14 @@
 # trazodone-withdrawal
+
+Trazodone is one of the most common antidepressants used in treating depression. These antidepressants work by blocking certain chemicals in the brain that produce certain mood-related hormones such as serotonin and dopamine. Many of these antidepressants have also been shown to increase levels of dopamine in the brain which increases the user's feeling of happiness. However, many people find that after quitting taking trazodone their moods do not return to normal.
+
+Trazodone is a very addictive drug, which means that after taking trazodone for a long period of time, it can have adverse side effects on the user. Trazodone can increase the heart rate, make the muscles tense and the blood pressure can increase. These symptoms are often mistaken for a heart attack, but <a href="https://www.americandrugrehabs.com/trazodone-withdrawal-side-effects/">trazodone withdrawal</a>
+ can be just as dangerous. In fact, the dangers of trazodone addiction have led to the development of drug detoxification programs to help users recover from trazodone addiction.
+
+Because trazodone has so many side effects, it is important that any person who becomes addicted to it does some research into drug rehab centers in order to determine if they would be best for them. There are many drug rehab centers in the United States that have become highly effective drug detoxification programs for people who have become addicted to trazodone.
+
+Many of these drug detoxification programs are based upon the philosophy that any <a href="https://www.samhsa.gov/">drug abuse</a> or addiction can be cured through an intensive program that involves the use of drug detoxification, therapy and counseling. Some of these programs have even been successful in helping addicts completely quit drugs while other programs offer detoxification through medication. These programs are usually only offered by local drug treatment programs in the United States and can often be combined with a local drug rehabilitation center.
+
+Drug detoxification requires the patient to abstain from taking all types of stimulants and alcohol until after they have completed their drug rehab program. Many drug rehab centers offer programs in which the addict is allowed to take home stimulants to help them with their detoxification. This allows them to slowly wean themselves off their drug of their dependence and allow their bodies to heal themselves at the same time. Most people who are addicted to a drug are able to successfully complete this process after just a few weeks of not using the drug.
+
+Before you decide to go through the detoxification process, you should take the time to speak with your doctor about trazodone withdrawal and how it can affect you. Make sure that you understand the risks involved in drug detox and how long it will take you to complete it.
