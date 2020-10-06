@@ -1,4 +1,4 @@
-# trazodone-withdrawal
+# What is trazodone withdrawal?
 
 Trazodone is one of the most common antidepressants used in treating depression. These antidepressants work by blocking certain chemicals in the brain that produce certain mood-related hormones such as serotonin and dopamine. Many of these antidepressants have also been shown to increase levels of dopamine in the brain which increases the user's feeling of happiness. However, many people find that after quitting taking trazodone their moods do not return to normal.
 
